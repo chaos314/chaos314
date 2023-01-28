@@ -5,7 +5,7 @@ football referee.\
 ~~sneakers seller.~~
 
 💰 ex-quant. especially ₿\
-👾 ex-game dev @krafton @gamivil\
+👾 ex-game dev @krafton @gamevil\
 🏋️ ex-full stack dev @kream @w-concept\
 🗽 ex-new yorker
 
