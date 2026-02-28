@@ -4,7 +4,7 @@
 
 - seoul based artist
 - football referee
-- ultra-marathoner
+- ultra trail runner
 
 💰 ex-quant, especially ₿\
 👾 ex-game dev @krafton @gamevil\
