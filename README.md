@@ -10,3 +10,4 @@
 👾 ex-game dev @krafton @gamevil\
 🏋️ ex-full stack dev @kream @w-concept\
 🗽 ex-new yorker
+📖 translated Python Tricks (Dan Bader) into Korean
